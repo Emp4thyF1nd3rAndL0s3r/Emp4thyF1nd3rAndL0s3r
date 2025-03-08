@@ -17,6 +17,7 @@
 
 I've been a Master Gardener since 2021.
 I'm a parent to 3 human beings. One of them is an adult.
+I'm also an aunt (prounoun adjustment), and stand-in grandperson.
 I'm new to having chickens and guinea fowl as livestock.
 I've completed the certification for HTML, JavaScript, and Intro to IT in Codecademy.
 I've completed one college program, but not the degree.
